@@ -1,1 +1,0 @@
-# Mi_sistema_de_progreso.github.io
